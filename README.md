@@ -1,2 +1,2 @@
 # lyannaur.github.io
-Leanna Gonzaga
+Leanna Marthena O. Gonzaga
