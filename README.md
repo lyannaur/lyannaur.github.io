@@ -81,5 +81,3 @@ heloww! **/ᐠ - ˕ -マ**
 And the moon said
 I don't know, I don't know, I don't know
 Give me some time”*
-
-[***next page!^^***](lyannaur.github.io2)
