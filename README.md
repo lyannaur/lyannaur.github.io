@@ -14,7 +14,7 @@ heloww! **/ᐠ - ˕ -マ**
 | ------- | -------------------- |
 | donghua | : chinese animation  |
 |  anime  | : japanese animation |
-|  manhwa/mahua  | : korean/chinese webtoons |
+|  manhwa/manhua  | : korean/chinese webtoons |
 
 
 
@@ -51,6 +51,7 @@ heloww! **/ᐠ - ˕ -マ**
 
 ### ★ manhwa/manhua ★
 >***「 Incarnation Kim Dokja will be killed by the person he loves most. 」***
+
 <img src="https://user-images.githubusercontent.com/122426686/212523901-987da6da-14b3-4e0c-8a9c-ab5431ea8ef8.jpg" width="400" height="150" />
 
 ◆ *orv*
@@ -65,4 +66,3 @@ heloww! **/ᐠ - ˕ -マ**
 
 ◆ *tamen de gushi*
 
-*p.s please talk to me if ever you are interest among these since i want someone to talk about these things(ㅠ﹏ㅠ)*
