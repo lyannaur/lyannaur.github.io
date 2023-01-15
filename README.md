@@ -16,8 +16,6 @@ heloww! **/ᐠ - ˕ -マ**
 |  anime  | : japanese animation |
 |  manhwa/manhua  | : korean/chinese webtoons |
 
-
-
 ### ★ donghua ★ 
 >***“Only after having met you did I rediscover that it's such a simple thing to be happy.”***
 
@@ -66,9 +64,9 @@ heloww! **/ᐠ - ˕ -マ**
 ◆ *operation: true love*
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-<p align="center">
-  <img width="400" height="150" src="https://user-images.githubusercontent.com/122426686/212537718-4480375e-58c6-4040-bf43-955a29fd486e.gif">
-</p>
+<img src="https://user-images.githubusercontent.com/122426686/212538084-fa15030a-f7b1-4b5f-b70b-c7b70b4d0051.jpg" width="400" height="400" />
+
+>***[The constellation ‘Secretive Plotter’ is spying at you.]*** ♡
 
 <iframe width="400" height="200" src="https://www.youtube.com/embed/DOqapPZOGu0?start=36" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
