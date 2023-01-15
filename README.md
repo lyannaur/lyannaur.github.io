@@ -53,7 +53,7 @@ heloww! **/ᐠ - ˕ -マ**
 ### ★ manhwa/manhua ★
 >***「 Incarnation Kim Dokja will be killed by the person he loves most. 」***
 
-<img src="https://user-images.githubusercontent.com/122426686/212523901-987da6da-14b3-4e0c-8a9c-ab5431ea8ef8.jpg" width="400" height="150" />
+<img src="https://user-images.githubusercontent.com/122426686/212523901-987da6da-14b3-4e0c-8a9c-ab5431ea8ef8.jpg" width="400" height="120" />
 
 ◆ *orv*
 
@@ -66,3 +66,9 @@ heloww! **/ᐠ - ˕ -マ**
 ◆ *operation: true love*
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
+<iframe width="400" height="120" src="https://www.youtube.com/embed/DOqapPZOGu0?start=36" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+>*“O sol pediu a lua em casamento*
+*E a lua, disse*
+*Não sei, não sei, não sei*
+*Me dá um tempo”*
