@@ -29,7 +29,7 @@ heloww! **/ᐠ - ˕ -マ**
 
 ◆ *mdzs*
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5MDff48720BZmPEOs3kHpF?utm_source=generator&theme=0" width="50%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5MDff48720BZmPEOs3kHpF?utm_source=generator&theme=0" width="40%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ### ★ anime ★
 >***“Sayonara, America. Sayonara, New York. But I’m not going to say sayonara to you, Ash.”***
@@ -48,7 +48,7 @@ heloww! **/ᐠ - ˕ -マ**
 
 ◆ *haikyuu*
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3yBeQAxk5Jb6bzvUpqu5qX?utm_source=generator&theme=0" width="50%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3yBeQAxk5Jb6bzvUpqu5qX?utm_source=generator&theme=0" width="40%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ### ★ manhwa/manhua ★
 >***「 Incarnation Kim Dokja will be killed by the person he loves most. 」***
@@ -64,5 +64,5 @@ heloww! **/ᐠ - ˕ -マ**
 ◆ *purple hyacinth*
 
 ◆ *operation: true love*
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="50%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="40%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
