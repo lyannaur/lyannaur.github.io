@@ -10,7 +10,7 @@ heloww! **/ᐠ - ˕ -マ**
 
 ### ★ donghua ( chinese animation ) ★
 
-<img src="https://user-images.githubusercontent.com/122426686/212522004-7d6e027b-d3fa-4b02-8141-3f5cc00a6b29.gif" width="400" height="100" />
+<img src="https://user-images.githubusercontent.com/122426686/212522004-7d6e027b-d3fa-4b02-8141-3f5cc00a6b29.gif" width="400" height="120" />
 
 ◆ *tgcf*
 
@@ -19,6 +19,8 @@ heloww! **/ᐠ - ˕ -マ**
 ◆ *mdzs*
 
 ### ★ anime ( japanese animation ) ★
+
+<img src="https://user-images.githubusercontent.com/122426686/212522178-3152c3a4-a4b7-4244-a01e-f8d0959b11a7.gif" width="400" height="120" />
 
 ◆ *sk8 the infinity*
 
@@ -33,6 +35,8 @@ heloww! **/ᐠ - ˕ -マ**
 ◆ *haikyuu*
 
 ### ★ manhwa/manhua( korean/chinese webtoon ) ★
+
+<img src="https://user-images.githubusercontent.com/122426686/212522355-59aa64b7-44b3-48af-bd10-7d321e43f6ef.jpg" width="400" height="120" />
 
 ◆ *homeless/no home*
 
