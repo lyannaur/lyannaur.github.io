@@ -21,8 +21,7 @@ heloww! **/ᐠ - ˕ -マ**
 ### ★ donghua ★ 
 >***“Only after having met you did I rediscover that it's such a simple thing to be happy.”***
 
-<img src="https://user-images.githubusercontent.com/122426686/212522004-7d6e027b-d3fa-4b02-8141-3f5cc00a6b29.gif" width="400" height="120" />
-
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5MDff48720BZmPEOs3kHpF?utm_source=generator&theme=0" width="100%" height="120" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ◆ *tgcf*
 
@@ -65,4 +64,3 @@ heloww! **/ᐠ - ˕ -マ**
 ◆ *operation: true love*
 
 ◆ *tamen de gushi*
-
