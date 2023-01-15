@@ -8,9 +8,11 @@ heloww! **/ᐠ - ˕ -マ**
 
 ##  ✧･ﾟ: * Interests ✧･ﾟ:*
 
-### ★ donghua ( chinese animation ) ★
+### ★ donghua ★
+**: chinese animation** 
 
 <img src="https://user-images.githubusercontent.com/122426686/212522004-7d6e027b-d3fa-4b02-8141-3f5cc00a6b29.gif" width="400" height="120" />
+
 
 ◆ *tgcf*
 
@@ -18,7 +20,8 @@ heloww! **/ᐠ - ˕ -マ**
 
 ◆ *mdzs*
 
-### ★ anime ( japanese animation ) ★
+### ★ anime ★
+**: japanese animation** 
 
 <img src="https://user-images.githubusercontent.com/122426686/212522178-3152c3a4-a4b7-4244-a01e-f8d0959b11a7.gif" width="400" height="120" />
 
@@ -34,9 +37,9 @@ heloww! **/ᐠ - ˕ -マ**
 
 ◆ *haikyuu*
 
-### ★ manhwa/manhua( korean/chinese webtoon ) ★
+### ★ manhwa/manhua ★
+**: korean/chinese webtoon** 
 
-<iframe src="https://assets.pinterest.com/ext/embed.html?id=713116922266244044" height="445" width="345" frameborder="0" scrolling="no" ></iframe>
 
 ◆ *orv*
 
