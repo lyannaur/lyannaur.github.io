@@ -3,13 +3,22 @@
 
 heloww! **/ᐠ - ˕ -マ**
 
-![15b8153b26cef62cf4294ac474033dc0](https://user-images.githubusercontent.com/122426686/212521253-046e3c15-6cac-4477-a37b-9ded7e94a39e.jpg)
+<img src="https://user-images.githubusercontent.com/122426686/212521253-046e3c15-6cac-4477-a37b-9ded7e94a39e.jpg" width="500" height="500" />
+
 > “Xie Lian didn't know whether to laugh or cry.”
 
-##  ✧･ﾟ: * Interests ✧･ﾟ:*
+##  ✧･ﾟ: * interests ✧･ﾟ:*
 
-### ★ donghua ★
-**: chinese animation** 
+
+|  words  |      definition      |
+| ------- | -------------------- |
+| donghua | : chinese animation  |
+|  anime  | : japanese animation |
+|  manhwa/mahua  | : korean/chinese webtoons |
+
+
+
+### ★ donghua ★ 
 
 <img src="https://user-images.githubusercontent.com/122426686/212522004-7d6e027b-d3fa-4b02-8141-3f5cc00a6b29.gif" width="400" height="120" />
 
@@ -21,7 +30,6 @@ heloww! **/ᐠ - ˕ -マ**
 ◆ *mdzs*
 
 ### ★ anime ★
-**: japanese animation** 
 
 <img src="https://user-images.githubusercontent.com/122426686/212522178-3152c3a4-a4b7-4244-a01e-f8d0959b11a7.gif" width="400" height="120" />
 
@@ -38,8 +46,8 @@ heloww! **/ᐠ - ˕ -マ**
 ◆ *haikyuu*
 
 ### ★ manhwa/manhua ★
-**: korean/chinese webtoon** 
 
+<img src="https://user-images.githubusercontent.com/122426686/212523901-987da6da-14b3-4e0c-8a9c-ab5431ea8ef8.jpg" width="400" height="150" />
 
 ◆ *orv*
 
@@ -51,3 +59,6 @@ heloww! **/ᐠ - ˕ -マ**
 
 ◆ *operation: true love*
 
+◆ *tamen de gushi*
+
+*p.s please talk to me if ever you are interest among these since i want someone to talk about these things(ㅠ﹏ㅠ)*
