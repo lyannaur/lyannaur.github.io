@@ -10,7 +10,7 @@ heloww! **/ᐠ - ˕ -マ**
 
 > “Xie Lian didn't know whether to laugh or cry.”
 
-##  ✧･ﾟ: * interests ✧･ﾟ:*
+##   interests 
 
 
 |  words  |      definition      |
@@ -85,5 +85,5 @@ And the moon said
 I don't know, I don't know, I don't know
 Give me some time”*
 
-[next page!^^](https://github.com/lyannaur/lyannaur.github.io/commit/d128fed19464f4c9eb6a25c2d07626b56dc795cf)
+
 
