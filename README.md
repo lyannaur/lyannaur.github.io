@@ -8,11 +8,37 @@ heloww! **/ᐠ - ˕ -マ**
 
 ##  ✧･ﾟ: * Interests ✧･ﾟ:*
 
-### novels
+### ★ donghua ( chinese animation ) ★
 
-<blockquote class="tiktok-embed" cite="https://www.tiktok.com/@escamv/video/7133644525498617094" data-video-id="7133644525498617094" style="max-width: 605px;min-width: 325px;" > <section> <a target="_blank" title="@escamv" href="https://www.tiktok.com/@escamv?refer=embed">@escamv</a> art credit 1L9l2Aa8UCL0IGJ <a title="omniscientreadersviewpoint" target="_blank" href="https://www.tiktok.com/tag/omniscientreadersviewpoint?refer=embed">#omniscientreadersviewpoint</a> <a title="omniscientreadersviewpointedit" target="_blank" href="https://www.tiktok.com/tag/omniscientreadersviewpointedit?refer=embed">#omniscientreadersviewpointedit</a> <a title="orv" target="_blank" href="https://www.tiktok.com/tag/orv?refer=embed">#orv</a> <a title="orvedit" target="_blank" href="https://www.tiktok.com/tag/orvedit?refer=embed">#orvedit</a> <a target="_blank" title="♬ original sound - escxmv" href="https://www.tiktok.com/music/original-sound-7133644528095202053?refer=embed">♬ original sound - escxmv</a> </section> </blockquote> <script async src="https://www.tiktok.com/embed.js"></script>
+<img src="https://camo.githubusercontent.com/..." data-canonical-src="https://user-images.githubusercontent.com/122426686/212522004-7d6e027b-d3fa-4b02-8141-3f5cc00a6b29.gif" width="100" height="10" />
 
-◆ cnovels (like tgcf)
+◆ *tgcf*
 
-◆ orv
+◆ *link click*
+
+◆ *mdzs*
+
+### ★ anime ( japanese animation ) ★
+
+◆ *sk8 the infinity*
+
+◆ *banana fish ( i'm still okay, if you're wondering)*
+
+◆ *bungou stray dogs*
+
+◆ *moriarty the patriot*
+
+◆ *seraph of the end*
+
+◆ *haikyuu*
+
+### ★ manhwa/manhua( korean/chinese webtoon ) ★
+
+◆ *homeless/no home*
+
+◆ *lost in the cloud*
+
+◆ *purple hyacinth*
+
+◆ *operation: true love*
 
