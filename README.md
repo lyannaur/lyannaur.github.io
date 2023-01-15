@@ -68,7 +68,12 @@ heloww! **/ᐠ - ˕ -マ**
 
 <iframe width="400" height="120" src="https://www.youtube.com/embed/DOqapPZOGu0?start=36" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
->*“O sol pediu a lua em casamento*
+***“O sol pediu a lua em casamento*
 *E a lua, disse*
 *Não sei, não sei, não sei*
-*Me dá um tempo”*
+*Me dá um tempo”****
+
+>>: *“The sun asked the moon to marry him
+And the moon said
+I don't know, I don't know, I don't know
+Give me some time”*
