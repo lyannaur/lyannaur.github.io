@@ -10,7 +10,7 @@ heloww! **/ᐠ - ˕ -マ**
 
 ### ★ donghua ( chinese animation ) ★
 
-<img src="https://camo.githubusercontent.com/..." data-canonical-src="https://user-images.githubusercontent.com/122426686/212522004-7d6e027b-d3fa-4b02-8141-3f5cc00a6b29.gif" width="100" height="10" />
+<img src="https://user-images.githubusercontent.com/122426686/212522004-7d6e027b-d3fa-4b02-8141-3f5cc00a6b29.gif" width="400" height="100" />
 
 ◆ *tgcf*
 
