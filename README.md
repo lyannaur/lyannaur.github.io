@@ -36,7 +36,9 @@ heloww! **/ᐠ - ˕ -マ**
 
 ### ★ manhwa/manhua( korean/chinese webtoon ) ★
 
-<img src="https://user-images.githubusercontent.com/122426686/212522355-59aa64b7-44b3-48af-bd10-7d321e43f6ef.jpg" width="400" height="120" />
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=713116922266244044" height="445" width="345" frameborder="0" scrolling="no" ></iframe>
+
+◆ *orv*
 
 ◆ *homeless/no home*
 
