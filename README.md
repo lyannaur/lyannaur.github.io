@@ -65,6 +65,12 @@ heloww! **/ᐠ - ˕ -マ**
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
+> #### “To watch with your own eyes your beloved be trampled and ridiculed, yet be unable to do anything. That's the worst suffering in the world.”
+
+<img src="https://user-images.githubusercontent.com/122426686/212625864-ec521fd9-f3f2-4258-902d-6865f5ed3f3c.gif" width="350" height="150" />
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3z9OnsnvM6SFN2dzrSDdVO?utm_source=generator" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 #### ***[The constellation ‘Secretive Plotter’ is spying at you.]*** ♡
 
 <img src="https://user-images.githubusercontent.com/122426686/212538084-fa15030a-f7b1-4b5f-b70b-c7b70b4d0051.jpg" width="400" height="400" />
@@ -81,5 +87,5 @@ And the moon said
 I don't know, I don't know, I don't know
 Give me some time”*
 
-[「𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠...」](https://www.tiktok.com/@escamv/video/7161452245429652741)
+[「𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠...」](https://www.instagram.com/p/CjN8Nv2tjqr/?igshid=YmMyMTA2M2Y%3D)
 
