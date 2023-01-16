@@ -30,6 +30,8 @@ heloww! **/ᐠ - ˕ -マ**
 
 ### ★ anime ★
 >***“Sayonara, America. Sayonara, New York. But I’m not going to say sayonara to you, Ash.”***
+
+
 <img src="https://user-images.githubusercontent.com/122426686/212522178-3152c3a4-a4b7-4244-a01e-f8d0959b11a7.gif" width="400" height="120" />
 
 ◆ *sk8 the infinity*
@@ -47,6 +49,8 @@ heloww! **/ᐠ - ˕ -マ**
 
 ### ★ manhwa/manhua ★
 >***「 Incarnation Kim Dokja will be killed by the person he loves most. 」***
+
+
 <img src="https://user-images.githubusercontent.com/122426686/212523901-987da6da-14b3-4e0c-8a9c-ab5431ea8ef8.jpg" width="400" height="120" />
 
 ◆ *orv*
