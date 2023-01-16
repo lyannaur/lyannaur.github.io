@@ -65,11 +65,16 @@ heloww! **/ᐠ - ˕ -マ**
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-> #### “To watch with your own eyes your beloved be trampled and ridiculed, yet be unable to do anything. That's the worst suffering in the world.”
+#### oop
+<img src="https://user-images.githubusercontent.com/122426686/212629507-4a983820-5b33-4977-8abb-c2f47cddef7e.gif" width="400" height="120" />
 
-<img src="https://user-images.githubusercontent.com/122426686/212625864-ec521fd9-f3f2-4258-902d-6865f5ed3f3c.gif" width="350" height="150" />
+> *“You're apologizing because you've already decided to break your promise. Do you know how much I trusted you?”*
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3z9OnsnvM6SFN2dzrSDdVO?utm_source=generator" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+> *“I'm the one who was teaching him and he ranks higher than me.”*
+
+> *“I've been doing this so much longer than he has, am I not practicing enough?"*
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/4ZlQzskKkK4jsbcqO96luB?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 #### ***[The constellation ‘Secretive Plotter’ is spying at you.]*** ♡
 
