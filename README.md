@@ -65,8 +65,7 @@ heloww! **/ᐠ - ˕ -マ**
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-#### oop
-<img src="https://user-images.githubusercontent.com/122426686/212629507-4a983820-5b33-4977-8abb-c2f47cddef7e.gif" width="400" height="120" />
+### quotes
 
 > *“You're apologizing because you've already decided to break your promise. Do you know how much I trusted you?”*
 
@@ -74,7 +73,7 @@ heloww! **/ᐠ - ˕ -マ**
 
 > *“I've been doing this so much longer than he has, am I not practicing enough?"*
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/4ZlQzskKkK4jsbcqO96luB?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe width="400" height="200" src="https://www.youtube.com/embed/CDx8p_MftdU?start=51" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 #### ***[The constellation ‘Secretive Plotter’ is spying at you.]*** ♡
 
