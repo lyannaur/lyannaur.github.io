@@ -18,6 +18,8 @@ heloww! **/ᐠ - ˕ -マ**
 
 ### ★ donghua ★ 
 >***“Only after having met you did I rediscover that it's such a simple thing to be happy.”***
+
+
 <img src="https://user-images.githubusercontent.com/122426686/212527546-d8176939-e16e-41a0-b3b7-846a60f6c3cb.gif" width="400" height="120" />
 
 ◆ *tgcf*
@@ -63,10 +65,11 @@ heloww! **/ᐠ - ˕ -マ**
 
 ◆ *operation: true love*
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+><iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe> 
+>“Tell me you fool, If I continue to regress, will I ever get to meet you again?”
 
 ### *ੈ quotes ✩‧₊˚ 
-<iframe width="400" height="200" src="https://www.youtube.com/embed/CDx8p_MftdU?start=51" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 > *“You're apologizing because you've already decided to break your promise. Do you know how much I trusted you?”*
 
