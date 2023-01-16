@@ -81,5 +81,5 @@ And the moon said
 I don't know, I don't know, I don't know
 Give me some time”*
 
-[.·:*¨¨* ≈☆≈*¨¨*:·.](https://www.instagram.com/p/CjN8Nv2tjqr/?igshid=YmMyMTA2M2Y%3D)
+[「𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠...」](https://www.tiktok.com/@escamv/video/7161452245429652741)
 
