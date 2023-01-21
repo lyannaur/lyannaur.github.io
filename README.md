@@ -63,8 +63,6 @@ heloww! **/ᐠ - ˕ -マ**
 
 ◆ *purple hyacinth*
 
-◆ *operation: true love*
-
 
 ><iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe> 
 >“Tell me you fool, If I continue to regress, will I ever get to meet you again?”
