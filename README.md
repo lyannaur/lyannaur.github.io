@@ -63,32 +63,12 @@ heloww! **/ᐠ - ˕ -マ**
 
 ◆ *purple hyacinth*
 
+◆*romance 101*
+
 
 ><iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6VObnIkLVruX4UVyxWhlqm?utm_source=generator&theme=0" width="80%" height="150" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe> 
->“Tell me you fool, If I continue to regress, will I ever get to meet you again?”
 
-### *ੈ quotes ✩‧₊˚ 
-
-> *“You're apologizing because you've already decided to break your promise. Do you know how much I trusted you?”*
-
-> *“I'm the one who was teaching him and he ranks higher than me.”*
-
-> *“I've been doing this so much longer than he has, am I not practicing enough?"*
-
-#### ***[The constellation ‘Secretive Plotter’ is spying at you.]*** ♡
-<img src="https://user-images.githubusercontent.com/122426686/212538084-fa15030a-f7b1-4b5f-b70b-c7b70b4d0051.jpg" width="400" height="400" />
-
-<iframe width="400" height="200" src="https://www.youtube.com/embed/DOqapPZOGu0?start=36" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-***“O sol pediu a lua em casamento*
-*E a lua, disse*
-*Não sei, não sei, não sei*
-*Me dá um tempo”****
-
->>: *“The sun asked the moon to marry him
-And the moon said
-I don't know, I don't know, I don't know
-Give me some time”*
+<img src="https://user-images.githubusercontent.com/122426686/213906602-33de2c18-0cb1-4ae3-828d-c720286b8ef9.jpg" width="300" height="300" />
 
 [「𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠...」](https://www.instagram.com/p/CjN8Nv2tjqr/?igshid=YmMyMTA2M2Y%3D)
 
